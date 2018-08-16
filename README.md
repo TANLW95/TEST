@@ -3,5 +3,4 @@
 
 Just a short testing:)
 Sharing my love about sweets and hamsters^^v
-BAOBEO HEN XIANG
 ---
